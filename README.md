@@ -1,4 +1,4 @@
-## Hi there 👋
+https://github.com/cmbaji/cmbaji/blob/b63a514e048231a1a380bc1d1e391717ba5d47d2/Chieloka_Mbaji_Resume%20(2026_09)%20(1).pdf
 
 <!--
 **cmbaji/cmbaji** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
